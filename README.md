@@ -1,1 +1,0 @@
-# pvy-seznamy-a-tabulky
